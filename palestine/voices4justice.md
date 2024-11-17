@@ -12,7 +12,7 @@
 
 ## Artists
 
-## Opern Letters
+## Open Letters
 
 ## Politicians
 
