@@ -6,6 +6,7 @@ Arab Jews:
 - https://www.youtube.com/watch?v=qPRD85fy_yo
 - https://www.youtube.com/watch?v=j11nmtwxrwk
 - https://youtu.be/sqjXCaMPTEw?si=Wx8SeunOy6DTXMXG
+- https://youtu.be/tjJdWvZSdx0?si=ByLccaQpwFDkjlL9
 - Alon Mizrahi
 
 Israel planting bombs in Baghdad and Cairo to incite Arabs against Arab jews:
