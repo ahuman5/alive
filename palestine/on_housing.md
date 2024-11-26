@@ -6,5 +6,5 @@ I recently found out that [Germans who live in properties bought from jews durin
     2. The palestinian who lives their can't buy it.
     3. The only option allowed by Israel is that the original owner sell their home to an Israeli? jewish person or institution. Once they "sell it", Israel evicts the palestinian already living there so that it's emptied for the "buyer".
 3. Palestinian land stolen by Israeli jewish settlers in West Bank to build homes.
-4. Israeli Palestinians are rejected home permits to build homes while their jewish counterparts have no problem getting permissions.
+4. Israeli Palestinians are rejected home permits to build homes while their jewish counterparts have no problem getting permissions - https://youtu.be/oQAFmJMLtJQ?si=tvNmdGeHzE3R1CHr&t=944
 5. [To Be Confirmed] Palestians who live in the occupied palestinian territories (not part of Israel according to Interational Law) must get permission from Israel. Israel almost never grant permission to Palestinians. If any palestian builds a home without permission, Israel demolishes it.
