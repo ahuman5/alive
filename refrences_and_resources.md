@@ -15,3 +15,5 @@ https://uk.bookshop.org/p/books/if-i-must-die-poetry-and-prose-refaat-alareer/77
 https://www.dropsitenews.com/p/bbc-civil-war-gaza-israel-biased-coverage
 
 [The Middle East Is Up for Grabs](https://archive.md/ZIEiD)
+
+https://www.instagram.com/p/DDhK4EDqSkw/?igsh=MTk0YzRrcDc1eXNzcQ%3D%3D&img_index=1
