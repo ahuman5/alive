@@ -16,4 +16,5 @@ https://www.dropsitenews.com/p/bbc-civil-war-gaza-israel-biased-coverage
 
 [The Middle East Is Up for Grabs](https://archive.md/ZIEiD)
 
-https://www.instagram.com/p/DDhK4EDqSkw/?igsh=MTk0YzRrcDc1eXNzcQ%3D%3D&img_index=1
+[Two Israeli soldiers have been unable to travel to Australia after being asked to complete an extensive 13-page form, typically required for military personnel involved in war, according to the Israeli newspaper Ynet.
+](https://www.instagram.com/p/DDhK4EDqSkw/?igsh=MTk0YzRrcDc1eXNzcQ%3D%3D&img_index=1)
