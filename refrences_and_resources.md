@@ -67,3 +67,22 @@ https://www-aljazeera-com.cdn.ampproject.org/c/s/www.aljazeera.com/amp/features/
 
 https://blogs.mediapart.fr/les-invites-de-mediapart/blog/161124/mathematiciens-contre-le-genocide-gaza
 
+http://notechforapartheid.com/testimonials
+
+https://www.youtube.com/watch?v=0kX6w48fnL0&t=2s
+
+https://dontbuyintooccupation.org/
+
+https://www.youtube.com/watch?v=6Xh74Pkuk00
+
+https://www.youtube.com/watch?v=WqB--QLg8rA
+
+https://www.dci-palestine.org/for_palestinian_children_of_east_jerusalem_the_exception_is_the_rule
+
+https://www.youtube.com/watch?v=HnZSaKYmP2s
+
+https://www.youtube.com/watch?v=5AJlfW0g2rk
+
+https://www.youtube.com/watch?v=g7HqfqtlueI
+
+https://www.youtube.com/watch?v=LliyK19WvM4
