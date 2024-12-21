@@ -109,3 +109,27 @@ https://www.nu.nl/politiek/6335053/premier-schoof-spreekt-na-geweld-in-amsterdam
 
 https://www.techpolicy.press/the-weaponization-of-things-israels-technoviolence-a-litmus-test-for-technologists/
 
+https://www-breitbart-com.cdn.ampproject.org/c/s/www.breitbart.com/europe/2024/10/03/geert-wilders-for-breitbart-why-european-patriots-should-support-israel/amp/
+
+https://webtv.un.org/en/asset/k1j/k1jd9637bo
+
+https://www.middleeasteye.net/opinion/israel-un-war-time-revoke-membership
+
+https://www.middleeastmonitor.com/20241028-boycotting-for-palestine-how-adil-abbuthalhas-boycat-app-is-revolutionising-ethical-shopping/
+
+https://www.independent.co.uk/news/world/middle-east/gaza-israel-palestine-unrwa-refugees-b2637421.html
+
+https://amp-theguardian-com.cdn.ampproject.org/c/s/amp.theguardian.com/commentisfree/2024/oct/28/the-guardian-view-on-israel-v-the-un-the-making-of-an-outlaw-state
+
+https://www.middleeasteye.net/news/one-man-journey-israeli-prison-founding-abandon-harris-movement?utm_source=linkedin&utm_medium=social&utm_campaign=Social_Traffic&utm_content=ap_jq6b6pcis9
+
+https://events.ubc.ca/event/discussion-of-maya-winds-new-book-towers-of-ivory-and-steel-how-israeli-universities-deny-palestinian-freedom/
+
+https://catalyst-journal.com/2024/06/the-cargo-cult-of-woke
+
+https://www.quora.com/Why-do-Israeli-archaeologists-such-as-Israel-Finkelstein-doubt-that-the-events-of-Genesis-Exodus-and-the-stories-of-David-and-Solomon-were-real-when-this-questions-the-legitimacy-of-Israel-How-does-the-Israeli
+
+https://medium.com/ummah-wide/30-films-for-palestine-and-where-to-stream-them-0a3b65e99faa
+
+https://www.haaretz.com/opinion/2024-10-28/ty-article-opinion/.premium/what-was-i-doing-while-my-country-was-killing-civilians-in-gaza/00000192-d280-d628-a9df-fada52340000
+
