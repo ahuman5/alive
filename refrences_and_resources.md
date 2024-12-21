@@ -27,7 +27,9 @@ https://www.aljazeera.com/news/2020/2/18/un-envoy-impact-of-long-libya-war-on-ci
 
 https://www.haaretz.com/israel-news/2024-12-18/ty-article-magazine/.premium/idf-soldiers-expose-arbitrary-killings-and-rampant-lawlessness-in-gazas-netzarim-corridor/00000193-da7f-de86-a9f3-fefff2e50000
 
-https://watson.brown.edu/costsofwar/files/cow/imce/papers/2023/2024/Costs%20of%20War_Human%20Toll%20Since%20Oct%207.pdf
+https://watson.brown.edu/costsofwar/files/cow/imce/papers/2023/2024/Costs%20of%20War_Human%20Toll%20Since%20Oct%207.pdf - It seems to be one-sided story, need to finish watching it.
+
+
 
 [Raging against the machine](https://www.thetablet.co.uk/features/raging-against-the-machine/)
 
