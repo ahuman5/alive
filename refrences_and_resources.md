@@ -29,9 +29,41 @@ https://www.haaretz.com/israel-news/2024-12-18/ty-article-magazine/.premium/idf-
 
 https://watson.brown.edu/costsofwar/files/cow/imce/papers/2023/2024/Costs%20of%20War_Human%20Toll%20Since%20Oct%207.pdf - It seems to be one-sided story, need to finish watching it.
 
-
-
 [Raging against the machine](https://www.thetablet.co.uk/features/raging-against-the-machine/)
 
+[Conversations with History: Robert Fisk](https://www.youtube.com/watch?v=jjoGLA4mVxU)
+
+https://www.presstv.ir/Detail/2024/07/20/729713/shirion-collective-ultrazionist-trollfarm-targets-palestinian-voices-west
+
+[Pro-Israel ‘surveillance’ group turning attention to Australia, leaked posts show](https://www.theguardian.com/media/2024/jan/30/pro-israel-group-shirion-collective-australian-politicians-leaked-texts)
+
 https://news.cgtn.com/news/2024-10-26/CGTN-documentary-on-fighting-terrorism-Darkness-over-Urumqi-1y1leqIEQKc/p.html
+
+https://www.theguardian.com/world/article/2024/jun/29/daniel-linden-shirion-collective-pro-israel-palestine-hate
+
+https://media.licdn.com/dms/image/v2/D4E22AQH7u-v1rWFxYg/feedshare-shrink_800/feedshare-shrink_800/0/1732832989559?e=1735776000&v=beta&t=0FZhElRLqbOSgUFCouh5L3abw7BFwXhP2dP4Nf-k11s
+
+https://www.amazon.co.uk/We-Will-Be-Jaguars-Memoir/dp/1419763776
+
+https://www.middleeasteye.net/opinion/gaza-war-israel-instagram-western-media-favours-how
+
+https://www.commondreams.org/news/israel-has-killed-over-1000-doctors-and-nurses-in-gaza
+
+https://www.hrw.org/the-day-in-human-rights/2024/11/19?story=paragraph-9792
+
+https://www.theverge.com/24093294/mona-chalabi-interview-palestine-gaza-data-viz
+
+https://www.theguardian.com/commentisfree/2024/nov/25/un-gaza-decolonize-reform
+
+https://www.tbray.org/ongoing/When/202x/2024/03/09/DeGoogling
+
+https://www.middleeasteye.net/opinion/uk-allison-pearson-uproar-over-when-pro-palestinian-journalists-are-ignored-why
+
+https://blakebutler.substack.com/p/maximizing-time-for-reading?ref=thebrowser.com
+
+https://mco.dev/ogt-seeing-america-by-train/
+
+https://www-aljazeera-com.cdn.ampproject.org/c/s/www.aljazeera.com/amp/features/2024/11/23/genocide-free-cola-makes-a-splash-in-the-united-kingdom
+
+https://blogs.mediapart.fr/les-invites-de-mediapart/blog/161124/mathematiciens-contre-le-genocide-gaza
 
