@@ -86,3 +86,26 @@ https://www.youtube.com/watch?v=5AJlfW0g2rk
 https://www.youtube.com/watch?v=g7HqfqtlueI
 
 https://www.youtube.com/watch?v=LliyK19WvM4
+
+https://morningstaronline.co.uk/article/sarah-wilkinsons-arrest-online-posts-worrying-sign-britains-deepening-authoritarianism
+
+https://www.nytimes.com/2024/11/08/opinion/republicans-democrats-trump.html
+
+https://robertreich.substack.com/p/there-was-no-red-shift-there-was
+
+https://www.lemonde.fr/en/books/article/2024/10/04/david-grossman-israeli-writer-my-people-are-losing-themselves-in-this-endless-violence_6728161_33.html
+
+https://www.justiceinfo.net/en/137454-pressure-mounts-icc.html
+
+https://www.volkskrant.nl/nieuws-achtergrond/onverbeterlijk-israel-en-nederland~b8a88c39/
+
+https://www.palestinefilm.org.uk/
+
+https://www.ica.art/the-fifth-war-scenes-from-the-occupation-of-gaza
+
+https://act.progressive.international/out-palestine/
+
+https://www.nu.nl/politiek/6335053/premier-schoof-spreekt-na-geweld-in-amsterdam-van-integratieprobleem.html?referrer=https%3A%2F%2Fwww.linkedin.com%2F&referrer=https%3A%2F%2Fwww.linkedin.com%2F
+
+https://www.techpolicy.press/the-weaponization-of-things-israels-technoviolence-a-litmus-test-for-technologists/
+
