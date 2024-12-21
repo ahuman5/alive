@@ -18,3 +18,11 @@ https://www.dropsitenews.com/p/bbc-civil-war-gaza-israel-biased-coverage
 
 [Two Israeli soldiers have been unable to travel to Australia after being asked to complete an extensive 13-page form, typically required for military personnel involved in war, according to the Israeli newspaper Ynet.
 ](https://www.instagram.com/p/DDhK4EDqSkw/?igsh=MTk0YzRrcDc1eXNzcQ%3D%3D&img_index=1)
+
+https://witnessing-the-gaza-war.com/
+
+https://apnews.com/article/us-spain-israel-weapons-shipping-7cb890af47716111445f7726ce19ddb4
+
+https://www.aljazeera.com/news/2020/2/18/un-envoy-impact-of-long-libya-war-on-civilians-incalculable
+
+https://www.haaretz.com/israel-news/2024-12-18/ty-article-magazine/.premium/idf-soldiers-expose-arbitrary-killings-and-rampant-lawlessness-in-gazas-netzarim-corridor/00000193-da7f-de86-a9f3-fefff2e50000
