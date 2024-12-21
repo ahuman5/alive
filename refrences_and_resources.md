@@ -138,3 +138,5 @@ https://donorbox.org/suing-dutch-state
 https://geneva.usmission.gov/2017/03/24/u-s-explanation-of-vote-on-the-right-to-food/
 
 https://press.un.org/en/2021/gashc4336.doc.htm
+
+https://academy.amnesty.org/learn/courses/363/introduction-to-human-rights-education
