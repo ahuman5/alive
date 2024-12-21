@@ -133,3 +133,8 @@ https://medium.com/ummah-wide/30-films-for-palestine-and-where-to-stream-them-0a
 
 https://www.haaretz.com/opinion/2024-10-28/ty-article-opinion/.premium/what-was-i-doing-while-my-country-was-killing-civilians-in-gaza/00000192-d280-d628-a9df-fada52340000
 
+https://donorbox.org/suing-dutch-state
+
+https://geneva.usmission.gov/2017/03/24/u-s-explanation-of-vote-on-the-right-to-food/
+
+https://press.un.org/en/2021/gashc4336.doc.htm
