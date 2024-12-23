@@ -142,3 +142,20 @@ https://press.un.org/en/2021/gashc4336.doc.htm
 https://academy.amnesty.org/learn/courses/363/introduction-to-human-rights-education
 
 https://genocidegentry.org/
+
+https://fightbacknews.org/articles/commentary-ruling-class-media-paints-luigi-mangione-as-a-villain-but-we-are
+
+https://mronline.org/2024/12/21/cops-bust-picket-line-as-teamsters-strike-seven-amazon-warehouses/
+
+https://www.haaretz.com/opinion/2024-11-28/ty-article-opinion/.premium/my-impressions-as-an-israeli-reservist-in-gaza/00000193-7346-d567-ab93-fbe6eaba0000
+
+https://www.youtube.com/watch?v=bo6WvqJyxsc
+
+https://x.com/BladeoftheS/status/1870509898330780159
+
+https://braveneweurope.com/jason-hickel-apartheid-in-the-global-governance-system
+
+https://responsiblestatecraft.org/samantha-power-gaza-2670499374/
+
+https://www.thenation.com/article/world/blob-gaza-biden-blinken/
+
