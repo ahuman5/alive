@@ -1,0 +1,2 @@
+- Allyship
+- Woke capitalism
