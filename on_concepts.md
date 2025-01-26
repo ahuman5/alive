@@ -1,0 +1,8 @@
+- Approach each encounter with "This is a learning experience for both of us" mindset
+- Being patient and listening to others and respond is almost always a good strategy
+- Local Maxima
+- Sinking ship fallacy
+- Give people the emotions they want but do what you want
+- Overcommunication is always better than undercommunication
+- Soldier vs scout mentality
+- 
